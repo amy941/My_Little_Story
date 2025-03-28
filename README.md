@@ -31,7 +31,7 @@ Then went right back to my cartoon show and instantly forgot about it.** 🍃
 
 
 ---
-**We live in a fast-changing digital world, but the only footage I have of him is a 39-second clip filmed by one of my mom’s customers—he’s sitting there, reading the newspaper with his espresso and cigarette on the side.** 📽️ 
+**We live in a fast-changing digital world, but the only footage I have of him is a 39-second clip filmed by one of my mom’s customers—he’s sitting there, reading newspaper with his espresso and cigarette on the side.** 📽️ 
 
  ![doc_bao](https://github.com/user-attachments/assets/444dcc9d-44c7-4fa2-ab14-03ae521e2bdd)
 
