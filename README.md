@@ -35,7 +35,7 @@ Then went right back to my cartoon show and instantly forgot about it.** 🍃
 
 
 ---
-**Me and my siblings are now living the dream life that he once wished upon.**
+**Me and my sisters are now living the dream life that he once wished upon.**
 
 **Every year, on my birthday, my mom tells me to make a wish, and my wish is always the same.** 🌠 
 
