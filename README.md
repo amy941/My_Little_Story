@@ -48,9 +48,9 @@ Then went right back to my cartoon show and instantly forgot about it.** 🍃
 
 ![sky](https://github.com/user-attachments/assets/d4e67618-8f4c-48bf-b7c2-d1490b4850ef)
 
-                                                                    Thank you for reading this far. 
-                                                                    If you've ever missed someone without saying it out loud, 
-                                                                    then maybe - we already understand each other.
+                                                                      Thank you for reading this far. 
+                                                                      If you've ever missed someone without saying it out loud, 
+                                                                      then maybe - we already understand each other.
 
 ---
 Tôi sinh ra và lớn lên ở một thành phố nhỏ ở Việt Nam tên là Đà Nẵng.
