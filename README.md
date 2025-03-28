@@ -41,3 +41,31 @@ Then went right back to my cartoon show and instantly forgot about it.** 🍃
 
 *I wish, from that far distance, he finally found his peace.* 🕊️
 (anh Ba cho chim an)
+
+
+---
+Tôi sinh ra và lớn lên ở một thành phố nhỏ ở Việt Nam tên là Đà Nẵng.
+
+Ba tôi là một người lính. Ông đã ra chiến trường… sống sót trở về… rồi cưới mẹ tôi 🧑🏽‍❤️‍👩🏻
+
+Khi ba mẹ tôi có đứa con đầu lòng – chị cả của tôi, Ánh – họ quyết định mở một quán cà phê nhỏ. ☕
+
+Cả gia đình tôi sống dựa vào quán cà phê ấy. Cuộc sống không dễ dàng. Nhưng thật lòng mà nói? Ba chị em tôi đã có một tuổi thơ tuyệt vời khi lớn lên ở Việt Nam. 👧🏻👧🏻👧🏻
+
+Lúc tôi tám tuổi, ba ngồi xuống và hỏi: *“Con nghĩ sao nếu mình rời khỏi thị trấn này và bắt đầu một cuộc sống mới ở nước ngoài với nền giáo dục tốt hơn và một tương lai tươi sáng hơn?”*
+
+Tôi nói “Dạ được”, rồi quay lại xem hoạt hình và quên béng đi liền. 🍃
+
+Mười năm sau, ba giữ đúng lời hứa ấy. Cuộc sống của tôi ở Canada chính thức bắt đầu. ✈️
+
+Tôi không hề biết rằng, ba đã gom góp tất cả những gì mình có chỉ để tôi được hạnh phúc. 💟
+
+Chúng ta đang sống trong một thế giới số thay đổi nhanh chóng, nhưng đoạn video duy nhất tôi có về ba chỉ dài 39 giây, được quay bởi một khách quen của mẹ – ba đang ngồi đó, đọc báo với một ly espresso và điếu thuốc bên cạnh. 📽️
+
+Tôi thường xem lại đoạn video đó mỗi khi thấy lạc lõng, mỗi khi cần nhớ lý do tại sao mình lại ở đây. 💭
+
+Tôi và các anh chị em hiện đang sống cuộc sống mà ba từng mơ ước cho tụi tôi.
+
+Mỗi năm, vào sinh nhật tôi, mẹ lại bảo hãy ước một điều – và điều ước của tôi lúc nào cũng giống nhau. 🌠
+
+*Tôi ước, ở nơi xa xôi ấy, ba cuối cùng cũng tìm được bình yên cho riêng mình.* 🕊️
