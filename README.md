@@ -44,10 +44,13 @@ Then went right back to my cartoon show and instantly forgot about it.** 🍃
 
 **Every year, on my birthday, my mom tells me to make a wish, and my wish is always the same.** 🌠 
 
-*I wish, from that far distance, he finally found his peace.* 🕊️
+*I wish, from that far distance, he finally found his peace.* 🕊️ 
 
 ![sky](https://github.com/user-attachments/assets/d4e67618-8f4c-48bf-b7c2-d1490b4850ef)
 
+                                                                          Thank you for reading this far. 
+                                                                          If you've ever missed someone without saying it out loud, 
+                                                                          then maybe - we already understand each other.
 
 ---
 Tôi sinh ra và lớn lên ở một thành phố nhỏ ở Việt Nam tên là Đà Nẵng.
@@ -75,3 +78,7 @@ Tôi và các anh chị em hiện đang sống cuộc sống mà ba từng mơ �
 Mỗi năm, vào sinh nhật tôi, mẹ lại bảo hãy ước một điều – và điều ước của tôi lúc nào cũng giống nhau. 🌠
 
 *Tôi ước, ở nơi xa xôi ấy, ba cuối cùng cũng tìm được bình yên cho riêng mình.* 🕊️
+
+                                                                             Cảm ơn bạn đã đọc đến đây.
+                                                                             Nếu bạn từng nhớ ai đó mà không cần nói ra, 
+                                                                             có lẽ chúng ta đã hiểu nhau rồi.
