@@ -1,4 +1,5 @@
-# My_Little_Story | Amy Pham
+# My_Little_Story 
+author : Amy Pham
 
 **I was born and raised in a small city in Vietnam called Da Nang.**
 
