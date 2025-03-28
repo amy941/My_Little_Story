@@ -1,4 +1,4 @@
-# 📝 My_Little_Story | Amy
+# 📝 My_Little_Story | APh
                      
 **I was born and raised in a small city in Vietnam called Da Nang.**
 
