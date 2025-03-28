@@ -6,7 +6,7 @@
 (anh nha cu Yen Bay)
 
 ---
-**When my parents had their first child, my oldest sister Anh, they decided to open a small coffee shop.** ☕
+**When my parents had their first child, my oldest sister Ánh, they decided to open a small coffee shop.** ☕
 
 **Our family's livelihood relied on that little shop. Life wasn’t easy. But honestly? My siblings and I
 had the best childhood growing up in Vietnam.** 👧🏻👧🏻👧🏻
