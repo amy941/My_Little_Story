@@ -1,5 +1,5 @@
-# My_Little_Story | Amy Pham
-
+# 📝 My_Little_Story | Amy
+                     
 **I was born and raised in a small city in Vietnam called Da Nang.**
 
 **My Dad was a soldier. He went to war… survived… came back… and married my Mom** 🧑🏽‍❤️‍👩🏻
